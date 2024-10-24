@@ -1,4 +1,5 @@
-![alt text](aboutimg.jpg)
+![HeaderJB  Small](https://github.com/user-attachments/assets/779e3656-99b6-4116-9696-2a603a299edc)
+
 
 # Welcome to my page! 👋
 
